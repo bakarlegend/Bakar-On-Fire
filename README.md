@@ -1,1 +1,1 @@
-<br>[![Github](https://img.shields.io/badge/Github-bakarlegend-dimgray?style=flat-square&logo=github)](https://github.com/bakarlegend)<br> 
+<br>[![Github](https://img.shields.io/badge/Github-bakarlegend-dimgray?style=flat-square&logo=github)](https://github.com/bakarlegend)<br> [![Facebook](https://img.shields.io/badge/Facebook-+Bakak-blue?style=flat-square&logo=facebook)](https://www.facebook.com/B9K9R.L3G39D)<br>  [![Whatsapp](https://img.shields.io/badge/Whatsapp-Bakar-deepgreen?style=flat-square&logo=whatsapp)](https://chat.whatsapp.com/+923117167170) 
